@@ -1,1 +1,0 @@
-# paddypowerbetfair - Andutra
